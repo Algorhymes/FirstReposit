@@ -1,2 +1,7 @@
 # FirstReposit
-How the learning process begins
+
+:eyes: :heart: :mushroom:
+
+Word!
+
+How the learning process begins!
